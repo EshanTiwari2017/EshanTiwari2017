@@ -5,3 +5,4 @@
 **Random but simple and sometimes useful.** 🚀
 
 I think that is everything what I do, I don't have any more words. 😄
+Thinking for some more, always loading in my mind...
